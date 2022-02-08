@@ -1,0 +1,2 @@
+# abukalam
+Allahu-Akbar
